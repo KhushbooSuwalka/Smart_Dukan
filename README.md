@@ -169,7 +169,7 @@ https://smartdukan.gt.tc/
 
 ## 👨‍💻 Author
 
-**Lakshya Bhandari**
+**Khushboo Suwalka**
 
 ---
 
